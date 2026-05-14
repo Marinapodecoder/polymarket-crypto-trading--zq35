@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with top Polymarket Automation Script | high-frequency-trading + market-making, the #1 automation-script. Includes high-frequency-trading and
 
 
 
